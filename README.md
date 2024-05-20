@@ -5,4 +5,4 @@
     Mail: marieangedieng@gmail.com
     Linkedin: www.linkedin.com/in/marieangedieng
 😄 Pronouns: She/Her
-⚡ Fun fact: I am a music and books fanatics! 
+⚡ Fun fact: I am a music and books fanatics, and I hate milk ! 
